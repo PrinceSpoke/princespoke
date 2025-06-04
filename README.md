@@ -1,7 +1,7 @@
-<p><center> Whats up im Spoke / Zam </center></p>
+<p>Whats up im Spoke / Zam</p>
 
-<p><center> He / She or Shi idc , sometimes it varies just ask </center></p>
+<p> He / She or Shi idc , sometimes it varies just ask </p>
 
-<p><center> Roblox Myths (Days Union) / MC skins usually , Not crazy active </center></p>
+<p> Roblox Myths (Days Union) / MC skins usually , Not crazy active </p>
 
-<p><center> hi oomfs if u find this </center></p>
+<p> hi oomfs if u find this </p>
